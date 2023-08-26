@@ -2,4 +2,4 @@
 
 nothing special going on here
 
-but feel free to do waht ever :)
+but feel free to do whatever :)
